@@ -4,6 +4,6 @@
 
 1.获取文件
 
-[游戏.exe](https://pan.baidu.com/s/1FhSwhjOC7VtfrMQA1E7b0w?pwd=62n4) 
+[闪来闪去安装包](https://pan.baidu.com/s/1jVJSPUibv7lJt5HVtcGo1g?pwd=1234) 
 
 提取码：62n4
